@@ -1,3 +1,3 @@
-# BombCraft's website
+# Things you are not allowed to call me
 
-Here we have a lot of cool things!
+If you call me any of these things I will fucking kill you
